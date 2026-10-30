@@ -32,11 +32,16 @@ Fitness competitions can also give you experience, visibility, and chances to me
 
 A clear personal brand helps a fitness model explain who they are and what kind of work they want to do.
 It should reflect your real interests and presentation. Consider these parts of it:
-Authenticity: Show your personality and the fitness path that brought you here.
-Visual Identity: Keep colors and themes reasonably consistent across your channels.
-Content Strategy: Share useful fitness tips, workouts, and nutrition ideas.
-Engagement: Reply to followers and help build a supportive community.
-Professionalism: Use strong images and keep your portfolio polished.
+
+**Authenticity:** Show your personality and the fitness path that brought you here.
+
+**Visual Identity:** Keep colors and themes reasonably consistent across your channels.
+
+**Content Strategy:** Share useful fitness tips, workouts, and nutrition ideas.
+
+**Engagement:** Reply to followers and help build a supportive community.
+
+**Professionalism:** Use strong images and keep your portfolio polished.
 
 **Networking and Finding Work in Fitness**
 
